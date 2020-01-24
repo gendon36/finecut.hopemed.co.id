@@ -1,1 +1,0 @@
-# discover.homeplax.org
